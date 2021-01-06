@@ -8,3 +8,6 @@
 # [Vaxei1.0 clrs](https://drive.google.com/file/d/1EEExrMkFIPO5WP74rknzY7dtMXpAz2_G/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15594343/dc42)
 
+# [Vaxei DT (Plombire Edit)](https://www.dropbox.com/s/wvtulx5imjxnla3/Vaxei%20DT%20%28Plombire%20Edit%29.osk?dl=0)
+![](https://i.imgur.com/12j8ljG.jpg)
+
