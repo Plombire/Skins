@@ -5,6 +5,6 @@
 # [Aristia (Cookiezi cursor)](https://github.com/jaks024/osuSkin/raw/master/Aristia(Edit)%20cookizei%20cursor.osk)
 ![](https://i.imgur.com/mE68tyI.jpg)
 
-# [Vaxei Bacon boi 1.0 clrs](https://drive.google.com/file/d/1EEExrMkFIPO5WP74rknzY7dtMXpAz2_G/view?usp=sharing)
+# [Vaxei1.0 clrs](https://drive.google.com/file/d/1EEExrMkFIPO5WP74rknzY7dtMXpAz2_G/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15594343/dc42)
 
