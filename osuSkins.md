@@ -1,6 +1,6 @@
 # Skins
-# [Cookiezi skin 2016](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2016%202016-01-09.osk) 
-![](https://shigeskinss.s-ul.eu/y5qd1Inz) 
+# [404 SkinNotFound v2](https://regulatorbpm.s-ul.eu/8TMSXnDr)
+![](https://i.imgur.com/ARNf0GD.jpg)
 
 # [Aristia (Cookiezi cursor)](https://github.com/jaks024/osuSkin/raw/master/Aristia(Edit)%20cookizei%20cursor.osk)
 ![](https://i.imgur.com/mE68tyI.jpg)
