@@ -2,6 +2,9 @@
 # [404 SkinNotFound v2](https://regulatorbpm.s-ul.eu/8TMSXnDr)
 ![](https://i.imgur.com/ARNf0GD.jpg)
 
+# [- skill ryan edit](http://puu.sh/DWnPo/f48fda22c5.osk)
+![](https://puu.sh/DWnLb/a771675184.jpg)
+
 # [Aristia (Cookiezi cursor)](https://github.com/jaks024/osuSkin/raw/master/Aristia(Edit)%20cookizei%20cursor.osk)
 ![](https://i.imgur.com/mE68tyI.jpg)
 
